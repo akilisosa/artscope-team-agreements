@@ -5,6 +5,7 @@ Team Agreements artscope.io
 - Kripa Shrestha
 - Alberto Sosa
 - Linda Sung Jee Kim
+- Joey Gobran
 
 # what do i expect of myself
 - Keeping upto Date with updates and changes and being flexible 
@@ -13,6 +14,11 @@ Team Agreements artscope.io
 - Communicate
 - Learn more
 - As Flexible as possible
+- push yourself to learn 
+- step outside comfrot zone
+- trust the process. 
+- ask questions. 
+- professional
 
 
 # what do i expect of my team members
@@ -23,9 +29,12 @@ Team Agreements artscope.io
 - Be Prepared to Plan 
 - Being Honest
 - Being Supportive
+- collaborations and asking questions
+- building relationshipts
 
 # what are the consequences of my actions
 - If you miss to many meetings/aren't contributing you will be let go
 - Learn From the mistakes
 - If you miss a meeting, send an email, and schedule the next meeting.
+- dont imagine a cap on the limits we can do. 
   
